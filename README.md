@@ -1,1 +1,1 @@
-[https://www.linkedin.com/in/glebsts/](LinkedIn)
+(https://www.linkedin.com/in/glebsts/)[LinkedIn]
